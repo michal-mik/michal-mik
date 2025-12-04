@@ -1,6 +1,6 @@
 ### Hi! I'm Michal ✌️
 
-> 📍 Based in Slovakia
+> 🇸🇰 Slovakia
 >
 > 📅 24 years old
 >
