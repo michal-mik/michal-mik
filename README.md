@@ -15,7 +15,7 @@
 **Languages spoken:**
 > Slovak - Native
 >
-> English - Fluent
+> English - Intermediate
 
 **Programming languages:**
 
